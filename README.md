@@ -1,2 +1,0 @@
-# catpstone-
-.
